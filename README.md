@@ -1,3 +1,3 @@
-# abhi1345.github.io
+# upneja.me
 
 Personal website.
